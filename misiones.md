@@ -6,4 +6,8 @@
 4. contruir la atalaya de la liga de la justicia
 5. Hacer un mapa de la ciudad de Lex Luthor
 6. Hacer un plan de contingencia
+
 7. Hacer un mapa de la ciudad de Lex qweryuiopihgfvbnm
+
+7. qweryuilkhgfrwertyu
+
